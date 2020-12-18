@@ -1,4 +1,4 @@
-**1. Title:** Linguistic Harbingers of Conversational Failure — A Case Study on Wikipedia Talk Page Discussions
+**1. Title:** Linguistic Harbingers of Conversational Failure: A Case Study on an Online Strategy Game
 
 **2. Abstract:** 
 
